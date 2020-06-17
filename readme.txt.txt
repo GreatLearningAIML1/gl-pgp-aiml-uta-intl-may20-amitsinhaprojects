@@ -1,3 +1,3 @@
 Amit Sinha
-Greate Learning
+Great Learning
 May 2020
